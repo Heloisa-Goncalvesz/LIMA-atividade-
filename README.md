@@ -4,6 +4,7 @@ Campinas - SP |
 [helo.goncalves0515@gmail.com](mailto:helo.goncalves0515@gmail.com) | 
 (19) 98319-4457  
 [GitHub](https://github.com)
+[LinkedIn](https://www.linkedin.com/in/helo%C3%ADsa-gon%C3%A7alves-silva-275220303) 
 
 ---
 
